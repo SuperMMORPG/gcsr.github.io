@@ -1,6 +1,6 @@
 ## supermmorpg.github.io/gcsr.github.io/
 
-由于不可抗力，只能新建个人博客地址
+由于个人原因，只能新建个人博客地址
 
 继续写些心得体会
 
